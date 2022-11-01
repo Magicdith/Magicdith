@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Magicdith
+- 👋 Hi, I’m Meredith Rosa
 - 👀 I’m interested in Health Alternatives (massage)
 - 🌱 I’m currently learning Social Media & Marketing
 - 💞️ I’m looking to collaborate on Coaching & Support 
